@@ -1,0 +1,2 @@
+# tb-j606f_opensource_s100044_201118_row.tar
+LenovoTabP11 j606f opensource s100044_201118
